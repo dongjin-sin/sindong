@@ -3,7 +3,5 @@ asdasdasdasddd
 ddddkddjdklaskdjasd
 askndkasld
 akdkasldnaksdnasdl
-adnkasldnaskldn
-aslkdasdkansda
-asndasdj
-sadasd
+안녕하세요 저는사넘니ㅏ엄ㄴ아ㅣ멍ㅁ
+asndasd
